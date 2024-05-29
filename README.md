@@ -8,7 +8,7 @@ Meu nome é Erica Santos
   
   Voce pode entrar em contato comigo 📫
   
-  ericasaantos07@gamil.com @ericawttz
+  ericasaantos07@gmail.com @ericawttz
 
 
   ![teste1](https://media.tenor.com/uyio7I4RsqMAAAAM/barbie-fairytopia-bibble.gif)
