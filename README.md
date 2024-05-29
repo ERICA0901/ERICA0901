@@ -1,7 +1,7 @@
 Ola 🤗
 Boas vindas ao meu perfil💜
 
-Meu nome é Erica SantoseR
+Meu nome é Erica Santos
 - Estou estudando Java
 - Estou estudando Alura
 - Utilizaçao javascript
